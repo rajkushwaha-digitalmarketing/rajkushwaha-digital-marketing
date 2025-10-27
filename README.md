@@ -48,8 +48,8 @@ I build digital systems that grow brands **organically + consistently**:
 | Client | Industry | Result |
 |--------|----------|--------|
 | **Key Medsolutions Inc (USA)** | Medical Billing | 100% Organic Growth + Top ranking in Greensboro |
-| **Vizva Consultancy Services** | Staffing | LinkedIn Growth + Revenue boost |
-| **Silverspace Inc USA** | IT | Brand positioning + Social authority |
+| **Vizva Consultancy Services** | Staffing | LinkedIn Growth + Revenue boost |Website Ranking + AEO |
+| **Silverspace Inc USA** | IT | Brand positioning + Social authority | Logo Modification + Branding | Website Ranking + AEO|
 
 ---
 
