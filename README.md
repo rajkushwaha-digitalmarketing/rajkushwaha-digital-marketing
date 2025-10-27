@@ -72,7 +72,7 @@ I build digital systems that grow brands **organically + consistently**:
 ✅ Client results  
 ✅ Testimonials  
 ✅ Strategy frameworks  
-📎 Full Portfolio: *(Attached PPT in repository)*
+📎 Full Portfolio: *(Attached PDF in repository)*
 
 ---
 
