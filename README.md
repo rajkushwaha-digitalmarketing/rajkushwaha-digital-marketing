@@ -79,7 +79,8 @@ I build digital systems that grow brands **organically + consistently**:
 ### 🔗 Connect With Me
 
 📍 Ahmedabad, Gujarat, India  
-📩 Email: **kushwaharaj0143@gmail.com**  
+📩 Email: **rajk.outreach@gmail.com
+**  
 🔗 LinkedIn: https://www.linkedin.com/in/rajkumarkushwaha014  
 
 ---
