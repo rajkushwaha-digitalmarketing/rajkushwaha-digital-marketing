@@ -47,9 +47,9 @@ I build digital systems that grow brands **organically + consistently**:
 
 | Client | Industry | Result |
 |--------|----------|--------|
-| **Key Medsolutions Inc (USA)** | Medical Billing | 100% Organic Growth + Top ranking in Greensboro |
-| **Vizva Consultancy Services** | Staffing | LinkedIn Growth + Revenue boost |Website Ranking + AEO |
-| **Silverspace Inc USA** | IT | Brand positioning + Social authority | Logo Modification + Branding | Website Ranking + AEO|
+| **Key Medsolutions Inc (USA)** | Medical Billing | 100% organic growth, top ranking in Greensboro |
+| **Vizva Consultancy Services** | Staffing | LinkedIn growth, revenue boost, website ranking, AEO |
+| **Silverspace Inc USA** | IT | Brand positioning, social authority, logo modification, branding, website ranking, AEO |
 
 ---
 
@@ -79,8 +79,7 @@ I build digital systems that grow brands **organically + consistently**:
 ### 🔗 Connect With Me
 
 📍 Ahmedabad, Gujarat, India  
-📩 Email: **rajk.outreach@gmail.com
-**  
+📩 Email: rajk.outreach@gmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/rajkumarkushwaha014  
 
 ---
